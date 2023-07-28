@@ -1,1 +1,1 @@
-Stellar Cyber Agents - Latest and greates
+Stellar Cyber Agents - Latest and greats
